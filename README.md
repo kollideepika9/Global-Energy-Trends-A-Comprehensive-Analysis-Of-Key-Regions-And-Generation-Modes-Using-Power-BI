@@ -1,0 +1,1 @@
+# Global-Energy-Trends-A-Comprehensive-Analysis-Of-Key-Regions-And-Generation-Modes-Using-Power-BI
